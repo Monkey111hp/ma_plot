@@ -98,4 +98,4 @@ Oprócz tego każdy z tej trójki będzię na boku używał magię zwykłych kar
 ffffffffffff
 ---
 
-
+COS WAZNEGo
